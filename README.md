@@ -1,1 +1,0 @@
-# talle_git-ll
